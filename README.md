@@ -1,0 +1,1 @@
+Pierwszy własny sklep komputerowy.
